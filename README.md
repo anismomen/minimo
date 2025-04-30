@@ -1,1 +1,1 @@
-# minimo
+https://anismomen.github.io/minimo/
